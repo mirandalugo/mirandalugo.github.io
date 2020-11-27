@@ -1,2 +1,2 @@
-# mirandalugo.github.io
+# Info
 Antonio Miranda Personal Page
